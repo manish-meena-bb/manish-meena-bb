@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Manish Meena
 - 👀 I’m interested in crypto.
-- 🌱 I’m currently learning stock market.
+- 🌱 I’m currently learning about stock market.
 - 📫 Reach out to me https://www.linkedin.com/in/manish-meena-157211146/
 
 <!---
